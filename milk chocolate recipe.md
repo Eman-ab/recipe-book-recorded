@@ -4,7 +4,7 @@
 
 - milk
 - cocoa powder
-- honey
+- honey or sugar
 
 ## Instructions
 
